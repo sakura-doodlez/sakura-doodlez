@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sakura-doodlez
 - 👀 I’m interested in drawing
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on a video game i'm making with my boyfriend
+- 💞️ I’m looking to collaborate on a video game i'm making with my friend
 - 📫 How to reach me: Don't :3
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i like strawberries
